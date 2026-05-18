@@ -1,4 +1,4 @@
-# 
+# vip FreshBooks for PC plugins is the best FreshBooks for PC plugins with invoicing and audit-trails. Safe, reliable, and optimized for maximum performance.
 
 
 
